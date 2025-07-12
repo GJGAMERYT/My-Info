@@ -42,7 +42,7 @@ Premiere Pro, Adobe Animate, clip studio
 
 - 💼 LinkedIn www.linkedin.com/in/gohil-jaiveersinh
 - 🌐 Portfolio: [your-website.com](https://your-website.com)
-- 📷 Instagram: https://www.instagram.com/gohil.jaiveersinh
+- 📷 Instagram: [gohil.jaiveersinh](https://www.instagram.com/gohil.jaiveersinh)
 - 📧 Email: gohiljaiveersinh@gmail.com
 
 ---
